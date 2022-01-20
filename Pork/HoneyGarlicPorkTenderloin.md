@@ -1,6 +1,6 @@
 # Honey Garlic Roasted Pork Tenderloin
 
- This is a simple, tender pork dish that is served slice with a honey garlic sauce. Made in the Instant Pot.
+This is a simple, tender pork dish that is served slice with a honey garlic sauce. Made in the Instant Pot.
  
 # Ingredients
 
